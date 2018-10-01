@@ -8,6 +8,8 @@ All of my drawings are available under the Creative Commons BY license. Although
 
 ### 1. Grimoire
 
+![Grimoire](witchtober-01.jpg)
+
 ### 2. Potions
 
 ### 3. Vodoo doll
