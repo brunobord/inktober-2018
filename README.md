@@ -12,6 +12,8 @@ All of my drawings are available under the Creative Commons BY license. Although
 
 ### 2. Potions
 
+![Potions](witchtober-02.jpg)
+
 ### 3. Vodoo doll
 
 ### 4. Moon
