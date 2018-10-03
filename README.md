@@ -16,6 +16,8 @@ All of my drawings are available under the Creative Commons BY license. Although
 
 ### 3. Vodoo doll
 
+![Vodoo doll](witchtober-03.jpg)
+
 ### 4. Moon
 
 ### 5. Third Eye
