@@ -20,6 +20,8 @@ All of my drawings are available under the Creative Commons BY license. Although
 
 ### 4. Moon
 
+![Moon](witchtober-04.jpg)
+
 ### 5. Third Eye
 
 ### 6. Black cat
