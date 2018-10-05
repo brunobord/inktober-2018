@@ -24,6 +24,8 @@ All of my drawings are available under the Creative Commons BY license. Although
 
 ### 5. Third Eye
 
+![Third eye](witchtober-05.jpg)
+
 ### 6. Black cat
 
 ### 7. Forest
