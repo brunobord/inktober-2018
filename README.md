@@ -28,6 +28,8 @@ All of my drawings are available under the Creative Commons BY license. Although
 
 ### 6. Black cat
 
+![Black cat(s)](witchtober-06.jpg)
+
 ### 7. Forest
 
 ### 8. Tarot
