@@ -32,6 +32,8 @@ All of my drawings are available under the Creative Commons BY license. Although
 
 ### 7. Forest
 
+![Forest](witchtober-07.jpg)
+
 ### 8. Tarot
 
 ### 9. Dance
