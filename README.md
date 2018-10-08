@@ -36,6 +36,8 @@ All of my drawings are available under the Creative Commons BY license. Although
 
 ### 8. Tarot
 
+![Tarot](witchtober-08.jpg)
+
 ### 9. Dance
 
 ### 10. Skull
