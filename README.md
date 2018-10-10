@@ -40,6 +40,8 @@ All of my drawings are available under the Creative Commons BY license. Although
 
 ### 9. Dance
 
+![Dance](witchtober-09.jpg)
+
 ### 10. Skull
 
 ### 11. Herbs
