@@ -44,6 +44,8 @@ All of my drawings are available under the Creative Commons BY license. Although
 
 ### 10. Skull
 
+![Skull](witchtober-10.jpg)
+
 ### 11. Herbs
 
 ### 12. Candles
