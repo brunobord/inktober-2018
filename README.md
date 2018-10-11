@@ -48,6 +48,8 @@ All of my drawings are available under the Creative Commons BY license. Although
 
 ### 11. Herbs
 
+![Herbs](witchtober-11.jpg)
+
 ### 12. Candles
 
 ### 13. Séance
