@@ -52,6 +52,8 @@ All of my drawings are available under the Creative Commons BY license. Although
 
 ### 12. Candles
 
+![Candles](witchtober-12.jpg)
+
 ### 13. Séance
 
 ### 14. Broom
