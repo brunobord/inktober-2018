@@ -64,6 +64,8 @@ Skipped: no inspiration on this.
 
 ### 15. Cemetary
 
+![Cemetary](witchtober-15.jpg)
+
 ### 16. Crystals
 
 ### 17. Tea leaves
