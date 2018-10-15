@@ -60,6 +60,8 @@ Skipped: no inspiration on this.
 
 ### 14. Broom
 
+![Broom](witchtober-14.jpg)
+
 ### 15. Cemetary
 
 ### 16. Crystals
