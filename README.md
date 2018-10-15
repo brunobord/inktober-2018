@@ -56,6 +56,8 @@ All of my drawings are available under the Creative Commons BY license. Although
 
 ### 13. Séance
 
+Skipped: no inspiration on this.
+
 ### 14. Broom
 
 ### 15. Cemetary
