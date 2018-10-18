@@ -68,6 +68,8 @@ Skipped: no inspiration on this.
 
 ### 16. Crystals
 
+![Crystals](witchtober-16.jpg)
+
 ### 17. Tea leaves
 
 ### 18. Moth
