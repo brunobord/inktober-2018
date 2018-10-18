@@ -72,6 +72,8 @@ Skipped: no inspiration on this.
 
 ### 17. Tea leaves
 
+![Tea leaves](witchtober-17.jpg)
+
 ### 18. Moth
 
 ### 19. Pendulum
