@@ -84,6 +84,8 @@ Skipped: no inspiration on this.
 
 ### 20. Cauldron
 
+![Cauldron](witchtober-20.jpg)
+
 ### 21. Mushrooms
 
 ### 22. Ritual
