@@ -76,6 +76,8 @@ Skipped: no inspiration on this.
 
 ### 18. Moth
 
+![Moth](witchtober-18.jpg)
+
 ### 19. Pendulum
 
 ### 20. Cauldron
