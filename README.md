@@ -80,6 +80,8 @@ Skipped: no inspiration on this.
 
 ### 19. Pendulum
 
+![Pendulum](witchtober-19.jpg)
+
 ### 20. Cauldron
 
 ### 21. Mushrooms
